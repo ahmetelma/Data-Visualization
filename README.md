@@ -6,6 +6,9 @@ Your mask aids in the protection of others around you.COVID-19 is primarily tran
 Reference
 
 https://www.nature.com/articles/d41586-020-02801-8.
+
 https://www.wvtf.org/post/why-some-people-may-refuse-wear-mask#stream/0.
+
 https://cornellsun.com/2020/09/14/why-people-refuse-to-wear-masks-explained/.
+
 https://www.discovermagazine.com/health/why-wearing-a-face-mask-halfway-can-be-dangerous.
